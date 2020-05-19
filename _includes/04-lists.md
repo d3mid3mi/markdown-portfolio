@@ -1,3 +1,0 @@
-- :heart: God
-- :heart: Anime
-- :heart: Technology
