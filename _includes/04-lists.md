@@ -1,3 +1,3 @@
-- :heart: God
-- :heart: Anime
-- :heart: Technology
+- ❤️ God
+- ❤️ Anime
+- ❤️ Technology
